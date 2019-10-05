@@ -1,2 +1,2 @@
 # git_brunch
-Crock Pot Adventures of a Grad Student
+Cooking Adventures of a Grad Student
