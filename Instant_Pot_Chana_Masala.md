@@ -6,7 +6,6 @@
 
 ### Ingredients
 
- 
  - 2 cups dried chickpeas, soaked overnight
  - 2 tablespoons oil of choice
  - 1 onion, finely chopped
@@ -47,6 +46,7 @@
 ### Notes
 
  - Don't have to soak the chickpeas if using canned chickpeas
+ - Defrosting the chicken can take a long time
 
 
 License
