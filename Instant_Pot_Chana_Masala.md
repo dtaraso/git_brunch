@@ -17,7 +17,7 @@
 
 ### Spices
  - 2 teaspoons coriander powder
- - 2 teaspoons dried mango powder (amchur)
+ - ½ teaspoons dried mango powder (amchur)
  - 2 teaspoons roasted cumin powder (see notes)
  - 2 teaspoons salt
  - 1 teaspoon garam masala
@@ -26,6 +26,8 @@
  - ½ teaspoon black pepper
  - ¼ – ½ teaspoon cayenne
  - 1 black cardamom
+ - 3 teaspoons Punjabi chole masala (optional)
+ - 1 teaspoon red chilli (optional)
 
  - 2 cups water
  - Cilantro leaves and red onion, garnish
