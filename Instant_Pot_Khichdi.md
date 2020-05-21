@@ -6,12 +6,12 @@
 
 ### Ingredients
 
- - 1 cup basmati rice, soaked for 15–30 minutes
+ - ½ cup basmati rice, soaked for 15–30 minutes
  - ½ cup small yellow lentils (moong dal), soaked for 15–30 minutes
  - 2 tablespoons ghee or oil of choice
  - 1 ½ teaspoons cumin seeds
  - 1 bay leaf
- - 6 cups water
+ - 5 cups water
  - 1 ½ teaspoons salt
  - 1 teaspoon turmeric
  - Ghee, for serving
