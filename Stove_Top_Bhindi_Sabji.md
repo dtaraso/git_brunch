@@ -2,7 +2,7 @@
 
 *Prep time: ~15 min*
 
-*Cook time: 2-3 hours*
+*Cook time: 20 min*
 
 ### Ingredients
 
