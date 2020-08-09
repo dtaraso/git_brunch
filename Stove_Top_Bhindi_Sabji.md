@@ -15,7 +15,7 @@
  - 3/4 Garam Masala
  - 1/4 turmeric
  - 1 large tomato
- - tsp Kasuri methi
+ - 1 tbsp Kasuri methi
  - 2 tbsp coriander leaves
  - 1 large onion
  - 2 green chili
@@ -34,9 +34,9 @@
 
  - Saute garlic just for 30 seconds. Do not brown them.
 
- - Next add in onions and fry until slightly golden. Do not brown them.
+ - Next add in onions and fry until slightly golden. Do not brown them. Add green chili.
 
- - Add chopped bhindi. Mix and fry on a medium flame until it is no more slimy.
+ - Add chopped bhindi. Mix and fry on a medium flame until it is no more slimy. Approximately ~12 minutes on medium flame.
 
  - Keep stirring and fry. By the end of this step bhindi is half cooked.
 
@@ -44,11 +44,11 @@
 
  - Add in tomatoes. Mix well and fry for 2 mins. Cover and cook bhindi ki sabji on a low flame.
 
- - When the tomatoes turn soft and mushy, check the salt and spice.
+ - When the tomatoes turn soft and mushy (approximately 4 minutes), check the salt and spice.
 
  - If needed add more of them. Add kasuri methi or curry leaves.
 
- - Fry for a few minutes till the raw smell of tomatoes goes away. You can cook the bhindi to your liking partially cooked or fully cooked.
+ - Fry for a few minutes till the raw smell of tomatoes goes away (approximately 2 minutes). You can cook the bhindi to your liking partially cooked or fully cooked.
 
  - Serve bhindi ki sabji with plain rice or chapati.
 
