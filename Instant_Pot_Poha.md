@@ -17,7 +17,7 @@
 
 #### Tadka
 
- - R2 tsp coconut oil (or oil of choice)
+ - 2 tsp coconut oil (or oil of choice)
  - 1 tsp mustard seeds
  - 2 to 3 green chillies (use as per spice levels)
  - 6 to 7 curry leaves
